@@ -1,2 +1,4 @@
 - 👋 Hi, I’m @Chan-con
-- 🐍 L'm Pysonista
+- 🐍 l'm Pysonista
+
+THANK YOU.
